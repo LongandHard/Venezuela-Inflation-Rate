@@ -1,0 +1,1 @@
+This is Venezuela inflation before its hyperinflation in 2018. Due to the extreme inflation rate in 2018, it kinda messed up my overall bar chart. [International Monetary Fund](https://www.imf.org/external/datamapper/PCPIPCH@WEO/WEOWORLD/VEN)
